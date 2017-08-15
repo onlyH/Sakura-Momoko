@@ -1,1 +1,1 @@
-![Mou icon](http://cdn.attach.qdfuns.com/notes/pics/201708/15/111802kiyyjlahlhazlapa.png)
+![Mou icon](http://25.io/mou/Mou_128.png)
